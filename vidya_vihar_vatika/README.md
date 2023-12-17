@@ -1,1 +1,0 @@
-# vidya_vihar_vatika
